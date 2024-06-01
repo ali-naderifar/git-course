@@ -1,3 +1,0 @@
-# ali naderifar
-
-Hellow World
